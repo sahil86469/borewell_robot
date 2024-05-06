@@ -4,5 +4,9 @@
 ![image](https://github.com/sahil86469/borewell_robot/assets/158127073/5b88b5ae-30e4-4984-9cda-6f5806c0f343)
 
 
-![image](https://github.com/sahil86469/borewell_robot/assets/158127073/e3517fdf-ce0a-4af3-9864-0a7e124b0b2a)
+
+
+https://github.com/sahil86469/borewell_robot/assets/158127073/11d14e26-c1c8-43a5-b4ff-faca478a062f
+
+
 
